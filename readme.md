@@ -1,1 +1,1 @@
-Try it out: https://mothgarden.itch.io/auditory-counter
+Try it out: https://mothgarden.itch.io/auditory-counter?secret=Um1oqXaWjURvkh6HEqUADjH3wE
